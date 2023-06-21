@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi, I'm Roberta Rodrigues uma estudante de Desenvolvimento de Sistema👋
 
 - 🔭 I’m currently working on - Procurando por emprego
 - 🌱 I’m currently learning - Sobre tudo 
