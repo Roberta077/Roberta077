@@ -8,4 +8,3 @@
 - 📫 How to reach me: rodriguesroberta67@gmail.com
 - 😄 Pronouns: ela/dela
 
-
